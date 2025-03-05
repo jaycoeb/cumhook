@@ -1,0 +1,3 @@
+how could i never add a readme to this beautiful piece of work hand pasted by god himself
+bring back 2018 hvh....
+id be surprised if this even shoots anymore but i will never forget the blood sweat and tears put into changing values and pasting public code and managining to make it perform even worse with each update
